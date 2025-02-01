@@ -1,4 +1,4 @@
-## Hi there Vedant here👋
+## Hiii 👋 Vedant Here
 
 
 # 💫 About Me:
